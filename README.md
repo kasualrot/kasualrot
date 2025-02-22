@@ -1,3 +1,8 @@
+![image](https://adriansblinkiecollection.neocities.org/a93.gif)
+![image](https://adriansblinkiecollection.neocities.org/a88.gif)
+![image](https://adriansblinkiecollection.neocities.org/a56.gif)
+![image](https://adriansblinkiecollection.neocities.org/a13.gif)
+![image](https://adriansblinkiecollection.neocities.org/a83.gif)
 ![image](https://64.media.tumblr.com/65886a5a832a72f1e785c68986ec386b/68e393feeeee9c91-73/s250x400/04c81045199e5acab2ded1ae0130094d6d096601.gifv)
 ![image](https://64.media.tumblr.com/ecd4c8c2966adf3e8e57b6f60511d508/45eaa8eb8eb5d64c-52/s250x400/89f8a9cf52c1c8bead00aa07a27772804e0bc655.gifv) 
 ![image](https://64.media.tumblr.com/5cfd4dd61100541633b9ee5111389fde/3385a8031f84cd21-f6/s250x400/e4bd97291cc35abb5bc3aba220cd864088416d6d.gifv) 
@@ -59,6 +64,14 @@
 ![image](https://64.media.tumblr.com/f9a9eeb68d4883123a372d4f36b05ace/922a9b36bf51e25e-52/s100x200/e1adc82cf4040b51cb7160b2b1c23cbfe27389e2.gifv)
 ![image](https://64.media.tumblr.com/4a337078008d6f672da1394a3c56abf1/54389286ddc21e89-57/s100x200/64d587a9aa58a74608ab364b580b6c1731bae138.pnj)
 ![image](https://64.media.tumblr.com/aa96c22c37c7c5a0b56789a8b0901cb8/54389286ddc21e89-8a/s100x200/ecb313213cd23ab612f0568536575b213fc40a0a.pnj)
+![image](https://adriansblinkiecollection.neocities.org/stamps/a60.gif)
+![image](https://adriansblinkiecollection.neocities.org/stamps/a49.gif)
+![image](https://adriansblinkiecollection.neocities.org/stamps/h1.gif)
+![image](https://adriansblinkiecollection.neocities.org/stamps/j13.png)
+![image](https://adriansblinkiecollection.neocities.org/stamps/i26.jpg)
+![image](https://adriansblinkiecollection.neocities.org/stamps/f23.gif)
+![image](https://adriansblinkiecollection.neocities.org/stamps/j17.png)
+![image](https://adriansblinkiecollection.neocities.org/stamps/i18.png)
 
 
 ![image](https://i.imgur.com/CiUvCd6.gif)
@@ -86,6 +99,7 @@
 ![image](https://64.media.tumblr.com/63a67dc1b9aeb1faac06c412634747fd/f1413ef45abf2485-e1/s100x200/a0eee51e9e9e8a6c5c1bb1dfe2db7321171832e8.gifv) ![image](https://64.media.tumblr.com/17e7f51e27c14f4360739a4113306e51/473928ea48888009-16/s100x200/4a5cf44a6826e8a31ad60bdfcd9598dac73eddeb.jpg) ![image](https://64.media.tumblr.com/a55630a60fbc97c9d33f1c243be6a89b/dde60c1e9dfffeeb-a9/s100x200/920adbf9df527c730557e78ad1881b72aa4ad73c.gifv) ![image](https://64.media.tumblr.com/5b813f45b7aab6bb0c92620e55e94e0f/d1b13d10a3b57c68-f3/s100x200/b5857806285ef2e8e818c8db8b662f92d1839bf5.gifv) ![image](https://64.media.tumblr.com/04d3d9da468f9ae82dc540f18bed5057/d1b13d10a3b57c68-7e/s100x200/0b12a9467f477e7c74f6515411192b2ba34e4160.pnj) ![image](https://64.media.tumblr.com/b69218008742d3296488131173de6416/47c4d724a89c0276-5b/s100x200/23bfff197c3a5dfdf1dfd66da257706f5ceacf3a.pnj)
 ![image](https://64.media.tumblr.com/0fa4846c9112719ceafbefab65336a7d/c80e07d9272333a9-b3/s100x200/7b1dd3032804b47597bde8282de850a89681a466.gifv) ![image](https://64.media.tumblr.com/10a54adfeb624f71e9dd79c68b5f7e2e/c80e07d9272333a9-95/s100x200/326b5322231086392fc63dd6430ea5ad34c81c41.gifv) ![image](https://64.media.tumblr.com/a014511377bafca7fdee5c3780626fbf/0de1c74e9f2b6803-ab/s100x200/849ccdd56160b2f7f59b854e044a221f357de7fb.pnj) ![image](https://64.media.tumblr.com/5917531ddcb1cd4c1511f380a8eee6d1/0de1c74e9f2b6803-45/s100x200/a5aec8f9c5203b598bd723776231b1e9380834cd.pnj)(![image](https://64.media.tumblr.com/bab09232076663d5bed53467c48c2e9d/ed207b8c386e35f1-35/s100x200/aac01e3679a38f1a88cf3a0777db16ffc50542eb.gifv) ![image](https://64.media.tumblr.com/1beb59d4a4a9a3d8a46871c46e7e783a/147e422eed2ecc0d-3a/s100x200/f582b76dbbbc2785a5c14e5c9da81a290ca5ec1b.jpg)
 ![image](https://64.media.tumblr.com/c63e49fca2a4d0543cf24eb961a9e5dd/f6aa4a68b0575f05-d2/s100x200/a2cfd17051a2951700cd01ffd63c67ee3e052ff2.gifv) ![image](https://64.media.tumblr.com/cd53cf54957b4d4788562ff2f6e86a95/3347c16333dd2347-3e/s100x200/32c4d1c3a1ed1326015165cfb6c0310d1daad93c.webp) ![image](https://64.media.tumblr.com/49d942d916bd0deed7a5ed1a7b4fe1d9/efb93e9c593a1dd7-d4/s100x200/13208d554ef63c0d39fe83ae4a6d29a8619fd496.gifv) ![image](https://64.media.tumblr.com/e5106752141a5ac2865d4ff5d7cfb5e0/e33f34dc8b4bdcd4-a2/s100x200/6222a62bd270df1c7e68e935bca3fea484e4f3cf.gifv) ![image](https://64.media.tumblr.com/8a33aa54bbd73ffa9e9832f71b91bc5a/0849fa6899c3a334-30/s100x200/94a3a758efd542a3072cbf77c8032c7999630860.gifv) ![image](https://64.media.tumblr.com/fd9889ee918a1cf4a9ed238761f50b4d/abb353c3a2fae4c6-2d/s100x200/a418d6d07ae9da5e859d36ba1d045f85d4dedc18.gifv) ![image](https://64.media.tumblr.com/e1922030f64233124161197d14b6ff49/2be3d7b7e3b8925d-51/s100x200/d48b9bce1543c385f70e71edc8c15f8ce4cde417.jpg)
+![image](https://adriansblinkiecollection.neocities.org/stamps/e1.png) ![image](https://adriansblinkiecollection.neocities.org/stamps/f64.png) ![image](https://adriansblinkiecollection.neocities.org/stamps/e53.jpg) ![image](https://adriansblinkiecollection.neocities.org/stamps/e45.gif) ![image](https://adriansblinkiecollection.neocities.org/stamps/e46.png) ![image](https://adriansblinkiecollection.neocities.org/stamps/e106.gif) ![image](https://adriansblinkiecollection.neocities.org/stamps/b59.png) ![image](https://adriansblinkiecollection.neocities.org/stamps/b20.gif)
 
 
 
@@ -109,3 +123,8 @@
 ![image](https://64.media.tumblr.com/99f3c2ca28c966d9e479ddad054aefa6/45f246123aed9bdb-57/s250x400/b6b444352058f7f7a7297013ac270be579ac8eca.gifv)
 ![image](https://64.media.tumblr.com/4ad6885e96c2bc10a9c2cff7ef73b69d/cda261022c3eb3e2-3a/s250x400/d4db496ad63474a7baa7603f500bc53fafd6879f.gifv)
 ![image](https://64.media.tumblr.com/80f2929e5eeaba2d6e80c63371a2d265/23f6d16f0e8aa1fa-c1/s250x400/a256cd809a9d1c5994a84b10328ed567f71f94d0.gifv)
+![image](https://adriansblinkiecollection.neocities.org/e98.gif)
+![image](https://adriansblinkiecollection.neocities.org/f26.gif)
+![image](https://adriansblinkiecollection.neocities.org/g10.gif)
+![image](https://adriansblinkiecollection.neocities.org/g64.gif)
+![image](https://adriansblinkiecollection.neocities.org/m14.gif)
