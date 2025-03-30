@@ -1,3 +1,4 @@
+this will (hopefully) soon be remade... enjoy it while it lasts
 ![image](https://64.media.tumblr.com/373f20736a3bc35e6723e61c3bab1e7f/e69ada103ddfcdc2-bc/s250x400/1ba5725cfc69110088c71dd14b488350fac07249.gifv)
 ![image](https://64.media.tumblr.com/047a0a4aaa9d7d99031b399bb232807b/4b36786e9171ecec-e1/s250x400/d9b977f3d446a0d41a5593ac5a7a6bd9513cb02b.gifv)
 ![image](https://64.media.tumblr.com/ac30dc01673288733807939a987596a0/d0eb9ed0074d9ed4-6b/s250x400/e5cbf10f78a6b939d7f0d3ea613244b9fcc3ca7a.gifv)
