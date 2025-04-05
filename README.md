@@ -18,7 +18,7 @@ WIP
  
  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎      ‎‎ ![image](https://64.media.tumblr.com/ee2c838eabf172c02f23dc80bea9ff35/f8c413e838a06160-5c/s75x75_c1/de9cb1ece707f125692b4992d940e2c14bd80a78.gifv) **thor**, the god of thunder
 
-  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎‎‎ ‎  ‎  ‎  ‎  ‎  ‎ ‎  ‎‎  ‎  ***it*/they**,he+neo prns ![image](https://64.media.tumblr.com/71dbfb03d9f3151dbbbffc7fff37ecab/cf53b60cec017c02-96/s75x75_c1/90d5bbb549d4d8eabac366bd34a76f13a4d0ba5b.gifv)
+  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎‎‎ ‎  ‎  ‎  ‎  ‎  ‎ ‎  ‎‎  ‎  ***dnc***, i block freely ![image](https://64.media.tumblr.com/71dbfb03d9f3151dbbbffc7fff37ecab/cf53b60cec017c02-96/s75x75_c1/90d5bbb549d4d8eabac366bd34a76f13a4d0ba5b.gifv)
 
 ![image](https://github.com/user-attachments/assets/8b4c44a0-62f5-4a3f-b2b4-c13c0408e8d0)
 
