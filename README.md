@@ -23,7 +23,7 @@
 ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎‎‎‎[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31i3xznaz732qjaqee5zknobzmuy&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=d38c22&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎   ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎‎‎ ‎‎‎‎ ‎‎‎‎‎‎ ‎ ‎ ‎![](https://komarev.com/ghpvc/?username=kasualrot&color=d38c22&label=people+i've+avenged&style=plastic)
 
-WIP
+
 
 <details>
 
@@ -142,6 +142,7 @@ TBC!
 ![image](https://64.media.tumblr.com/7a610b051f810b6e8a55836609c0f417/ddbaafdbe18230cd-b2/s400x600/52fbd8d65449e936caa0ab82d79c36739a61ab1b.gifv)
 ![image](https://64.media.tumblr.com/dc331d334d829aeca1f2c782eaecba36/9ca631c38850358e-7e/s400x600/261f6bc8c24fbced9667e56f78ad858ec0480bd1.pnj)
 ![image](https://64.media.tumblr.com/729b138461297060b83e9c9c8a6baf5a/6e9cf1054c9ab67f-58/s400x600/0b76c8aff5d02db700b6b6e99d0b54854b34c4a8.gifv)
+![image](https://64.media.tumblr.com/701d509a9b52eda9127ccd7e9763c5af/fac1117c0d740a49-1c/s400x600/a2a9a61ef1b0cb91d9a6ae42170523ba8e2db6c4.pnj)
 
 TBC!
 
