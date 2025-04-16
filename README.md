@@ -37,49 +37,9 @@ https://github.com/user-attachments/assets/e0fb1a62-15f0-4681-820f-291f40cd67d7
 
 <details>
 
-<summary>some stuff i made!</summary>
+<summary>most recent art i made TW yaoi</summary>
 
-https://github.com/user-attachments/assets/6f8c7792-0101-479d-9857-fb8bdfdd6fb3
-
-https://github.com/user-attachments/assets/5fd263f2-2256-435c-8fdd-48e40c6e8f4d
-
-https://github.com/user-attachments/assets/4e834535-7fa4-43c2-8a95-b3d3f21aee77
-
-https://github.com/user-attachments/assets/2850fe1a-ccb4-4123-b3d5-076a98cc4512
-
-https://github.com/user-attachments/assets/6d11c3c4-c4ab-4e6b-8d45-16fc80ae2948
-
-https://github.com/user-attachments/assets/6005cb8c-afb6-46b4-b36c-e1bb8fb93014
-
-https://github.com/user-attachments/assets/ac9005ec-21df-4d6e-b6ca-9231bdeca43c
-
-https://github.com/user-attachments/assets/9af9415f-5ecc-4851-b7d7-b9033a0f183c
-
-![image](https://github.com/user-attachments/assets/33851a4c-5a0a-4a24-b2f7-8cb59e1113dd)
-
-![image](https://github.com/user-attachments/assets/c74f6f11-58e6-4149-b114-dcbe55d925bf)
-
-![image](https://github.com/user-attachments/assets/f34f96ba-e76b-4f6e-8e0b-a2a4e4aec6fa)
-
-![image](https://github.com/user-attachments/assets/7a144774-9ce3-48d2-b3c0-7fcd55155c0d)
-
-![image](https://github.com/user-attachments/assets/d9f6265f-12fe-4e5d-abc1-cad525fbe4a8)
-
-![image](https://github.com/user-attachments/assets/9cbc73a3-d13f-4570-a72f-888182d35225)
-
-![image](https://github.com/user-attachments/assets/5bb75b9b-670c-4009-9cf6-5f147e0392c6)
-
-![image](https://github.com/user-attachments/assets/3fe926c5-0805-4b70-90d5-2c81cc8112a4)
-
-![image](https://github.com/user-attachments/assets/05fc169c-d0a6-4b4d-85e7-b891b752d140)
-
-![image](https://github.com/user-attachments/assets/2e360d3c-3bad-4b93-9b99-63ddd0dc2a96)
-
-![image](https://github.com/user-attachments/assets/28b4368f-09ff-4f47-9323-659746558b02)
-
-![image](https://github.com/user-attachments/assets/cad5c60b-dbe6-4768-9e07-74afa4eca081)
-
-![image](https://github.com/user-attachments/assets/edf513d1-80bf-4d16-966f-0eae24863f81)
+![image](https://github.com/user-attachments/assets/2a4eada1-4cce-453d-8fcc-2ae3d1aed3c0)
 
 </details>
 
