@@ -38,9 +38,10 @@ https://github.com/user-attachments/assets/f3f2ac3d-11d8-41c0-9133-6557bbd6ff94
 
 <summary>most recent art i made TW yaoi</summary>
 
+![thruce](https://github.com/user-attachments/assets/0000e711-1223-4dc6-89ea-e7327d4468f0)
+
 ![image](https://github.com/user-attachments/assets/2a4eada1-4cce-453d-8fcc-2ae3d1aed3c0)
 
-https://github.com/user-attachments/assets/9fdc37a9-29f6-47ee-9b0a-5dacaecaf246
 
 </details>
 
